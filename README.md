@@ -1,1 +1,0 @@
-# kamalNepal.github-io
